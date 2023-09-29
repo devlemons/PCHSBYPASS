@@ -1,6 +1,6 @@
 # PCHSBYSPASS
-[Googel](google.com)
-[Not Games](https://sites.google.com/view/games-unblockedd/minecraft)
-[Block Test (Twitter)](twitter.com)
+-[Googel dot kaum](google.com)
+*[Not Terraria](https://eaglercraft.com/mc/b1.3/)
++[AI webfilter Test (Twitter)](twitter.com)
 
-Bypass made with love and care by devlemons <3
+###Bypass made with love and care by devlemons <3
