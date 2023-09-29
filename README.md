@@ -7,7 +7,7 @@
 
 [Russian Block Simulator](https://www.xarg.org/project/tetris/)
 
-[Collaborative Russian Spyware](computernewb.com/collab-vm)
+[Collaborative Russian Spyware](https://computernewb.com/collab-vm)
 
 [VOLUME WARNING Extremely Possible Game ](https://watchdocumentaries.com/worlds-hardest-game/)
 
