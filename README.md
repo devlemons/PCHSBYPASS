@@ -9,6 +9,6 @@
 
 [Collaborative Russian Spyware](computernewb.com/collab-vm)
 
-[VOLUME WARNING  Extremely Possible Game ](https://watchdocumentaries.com/worlds-hardest-game/)
+[VOLUME WARNING Extremely Possible Game ](https://watchdocumentaries.com/worlds-hardest-game/)
 
 ###Bypass made with love and care by devlemons, I love to violate PCHS chromebook policy. <3
